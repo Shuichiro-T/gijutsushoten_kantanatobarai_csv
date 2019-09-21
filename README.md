@@ -1,0 +1,1 @@
+# gijutsushoten_kantanatobarai_csv
